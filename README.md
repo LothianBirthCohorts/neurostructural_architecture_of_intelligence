@@ -1,0 +1,2 @@
+# neurostructural_architecture_of_intelligence
+The neurostructural architecture of intelligence
